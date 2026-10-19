@@ -1,0 +1,1 @@
+# StudiKasus02_G1A024084_Dwi-Juliani
